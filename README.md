@@ -6,4 +6,4 @@
 - 🐷 Ask me about my dog
 - 📫 How to reach me: email/linkedin
 - 🚶 Pronouns: he/him
-- 🤓 Fun fact: I have a pet ball python
+- 🤓 Fun fact: I have a pet ball python and tarantula
